@@ -12,4 +12,4 @@
 
 - How to reach me : with my [instagram](https://www.instagram.com/rezageshani_web) and [linkedin](http://www.linkedin.com/in/reza-geshani-web)
 
-<img width="1346" height="637" alt="Screenshot (488)" src="https://github.com/user-attachments/assets/73025f1d-c63d-401a-af8f-0e42572c8827" />
+<img width="1346" height="637" alt="Screenshot (488)" src="https://github.com/user-attachments/assets/dc30f45c-a048-4921-81b0-2f9ed81efb43" />
